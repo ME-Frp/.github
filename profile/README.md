@@ -12,4 +12,4 @@ Visit our officials:
 
 <https://www.menetx.com>
 
-Copyright, 2021-2025. Gansu Huanyu Network Technology Co.,Ltd. / MagicEdge Global LTD.
+Copyright, 2021-2025. Tianjin Hedong Huanyuan Network Technology Co.,Ltd. / MagicEdge Global LTD.
